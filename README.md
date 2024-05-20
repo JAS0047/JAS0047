@@ -1,5 +1,4 @@
-• 👋 Hi, I'm Jacin Sebastian!  
-• 🔭 Passionate software developer doing my internship at Chirstex Foundation.  
-• 🌱 Currently diving deeper into Web 3 | Solana.  
+• 👋 Hi, I'm Jacin Sebastian! 
+• 🌱 Currently diving deeper into Cybersecurity.  
 • 🤝 Always looking for exciting projects to collaborate on!  
 • 📫 Reach out to me at sebastianjacin24@gmail.com.  
